@@ -1,1 +1,2 @@
-Real Gs move in silence like lasagna.
+> *“Real Gs move in silence like lasagna.”*  
+> — **Lil Wayne**
